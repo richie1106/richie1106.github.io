@@ -1,7 +1,5 @@
 # Memories are permanent
-## So are my sufferings
-
-
+### So are my sufferings
 ### Julia, please forgive your mother
 ### As you know the poem :
 
